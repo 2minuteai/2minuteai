@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @2minuteai
+- 👋 Hi, I’m @2minuteai, i'M GOING TO BE FAMOUS IN 5 YEARS. I'm serious. 
 - 👀 I’m interested in making parodies of 2minutepapers coz I like none of them. 
 - 🌱 I’m currently teaching people how to teach, since they don't teach that.
 - Was in search of good education, couldn't find it in US, definitely not in south africa.
